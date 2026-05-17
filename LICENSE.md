@@ -1,4 +1,4 @@
-
+Best CyberGhost Extension | PPTP support + end-to-end encryption is the best CyberGhost extension with PPTP support and end-to-end encryption. Secure and optimized.
 
 
 
