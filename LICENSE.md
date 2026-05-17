@@ -1,10 +1,10 @@
-الأفضل CyberGhost امتداد | دعم PPTP + التشفير من طرف إلى طرف هو أفضل CyberGhost امتداد مع دعم PPTP و التشفير من طرف إلى طرف. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/cyberghost-ee54/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
