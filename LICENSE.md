@@ -1,4 +1,4 @@
-
+Melhor CyberGhost Extensão | suporte PPTP + criptografia de ponta a ponta é o melhor CyberGhost extensão com suporte PPTP e criptografia de ponta a ponta. Seguro e otimizado.
 
 
 
